@@ -1,1 +1,3 @@
-🚀 Cooking Frames in Warpcast https://warpcast.com/nikolaiii
+🚀 Always keep building.
+
+🚀 Cooking Frames in Farcaster https://farcaster.xyz/nikolaiii.
