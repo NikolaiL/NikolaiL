@@ -1,3 +1,3 @@
 🚀 Always keep building.
 
-🚀 Cooking Frames in Farcaster https://farcaster.xyz/nikolaiii.
+🚀 Cooking apps on Farcaster https://farcaster.xyz/nikolaiii.
